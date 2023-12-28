@@ -6,5 +6,5 @@
 
 *Para Residencia Tayrona - san francisco putumayo en Google Maps*
 
-## Ver Página aquí: 
+### Ver Página aquí: 
 
